@@ -1,4 +1,4 @@
-
+Get the ultimate Craft for macOS utility with Craft for macOS exclusive Utility - collaboration and custom shortcuts. Featuring collaboration and custom shortcuts, it's the best
 
 
 
